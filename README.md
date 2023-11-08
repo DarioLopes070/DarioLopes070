@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on new development projects, back-end, front-end and on projects that I can grow as a professional.
 - 📫 How to reach me -> 
 - Email: dariolopes2001@gmail.com
-- Phone: (75) 99243-1919
+- Phone: (19) 9 9954-3347
 - Linkedin: www.linkedin.com/in/dário-lopes-12545821a
 
 <!---
